@@ -1,5 +1,4 @@
-# The A.C.C.O.R.D.: A Guide to Collaboration and Survival
-
+# The A.C.C.O.R.D.: A Guide to Collaboration and Survival Topside
 
 >When chaos rules the surface, a few of us still believe in something else. A signal, a gesture, a choice not to shoot. That’s what the Topside Accord stands for.
 
