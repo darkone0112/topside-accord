@@ -1,5 +1,3 @@
-> A Guide to Collaboration and Survival Topside
-
 # The A.C.C.O.R.D.: A Guide to Collaboration and Survival
 
 
